@@ -8,7 +8,7 @@ My hypotheses and random thoughts concerning matter, spirit, artificial intellig
 
 ## Author
 
-**Tong Zhang**  
+**Zhang Tong**  
 Jinan City, Shandong Province, P.R.China  
 
 Email: `zhangtong0812[at]gmail.com`  

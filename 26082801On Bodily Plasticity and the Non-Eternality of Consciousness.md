@@ -49,7 +49,7 @@ So-called immortality of consciousness is, to a large extent, a consolation—a 
 
 ## Author
 
-**Tong Zhang**  
+**Zhang Tong**  
 Jinan City, Shandong Province, P.R.China  
 
 Email: `zhangtong0812[at]gmail.com`  
