@@ -4,7 +4,7 @@ My hypotheses and random thoughts concerning matter, spirit, artificial intellig
 
 ## Essays
 
-- [论躯体可塑与意识非永恒性](./26082801论躯体可塑与意识非永恒性.md) / [English](./26082801On%20Bodily%20Plasticity%20and%20the%20Non-Eternality%20of%20Consciousness.md)
+- [论躯体可塑与意识非永恒性](./26082801论躯体可塑与意识非永恒性.md) / [On Bodily Plasticity and the Non-Eternality of Consciousness](./26082801On%20Bodily%20Plasticity%20and%20the%20Non-Eternality%20of%20Consciousness.md)
 
 ## Author
 
